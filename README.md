@@ -1,3 +1,3 @@
-[chdeck here](http://shark-stand-together.co/)
+[check here](http://shark-stand-together.co/)
 
 
